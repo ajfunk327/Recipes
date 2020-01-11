@@ -14,6 +14,7 @@ __Dough__
 Mix yeast, honey, and water. Let stand for 5 minutes.
 Add flour. Then add salt and olive oil. Then add remaining flour.
 Cover and let rise for at least an hour, or overnight in the fridge.
+Put oven at highest it can go, trust me. Put a thin coating of oil on the bottom of a pan, cast iron is probably my favorite. Depending on the voodoo that is baking, bake for anywhere from 7 to 15 minutes. Until the crust is golden brown and the cheese is brown and bubbly.
 
 __Sauce__
 * Tomato Sauce 

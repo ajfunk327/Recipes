@@ -8,7 +8,8 @@
 * Healthy drizzle of good olive oil, enough to coat them but not enough to pool in the bowl
 * Garlic, minced
 * Ginger, pressed
+
 Oven at 375, roast setting if you have it
 Toss together. Put on a baking sheet. 
-Roast for 30 minutes or so, until you smell it. Check every 15 minutes.
+Roast for 20 minutes or so, until you smell it. Check every 15 minutes.
 

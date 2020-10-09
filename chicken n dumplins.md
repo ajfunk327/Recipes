@@ -21,7 +21,9 @@ Place chicken breast on the baking sheet and Drizzle a little olive oil on the c
 
 Bake chicken for about 45 minutes. Once the chicken is cooked, shred it with two forks.
 
-Pour 2 quarts of chicken stock or broth into a large pot and start warming it up on the stove top while you make the dumplings..
+Put a small pad of butter in a large pot and cook shallots and garlic in it until it smells amazing.
+
+Pour 2 quarts of chicken stock or broth into the pot and start warming it up on the stove top while you make the dumplings..
 
 In a medium bowl, combine flour and baking powder. Then add in cubed butter.
 
@@ -36,8 +38,6 @@ With a rolling pin, roll the dough out to about 1/4" thickness. Be sure to add f
 Using a knife or a pizza cutter, start cutting out your dumplings into squares.
 
 Dust dumplings with a bit more flour. The extra flour is all gonna help keep them from sticking but will also thicken your chicken broth some as well when you add them to the pot.
-
-Put a little butter in the pot, simmer garlic and shallots until they smell amazing. 
 
 Bring chicken broth up to a boil. Add in shredded chicken and stir.
 

@@ -10,22 +10,22 @@ For the Blackened Chicken
 
 For the Alfredo Sauce & Pasta
 * 1 shallot, minced
-* 3 cloves garlic
+* 3 cloves garlic, minced
 * 6 Tbsp unsalted butter (quality here matters, tbh, spend the extra dollar on butter, you'll thank me)
 * 1 cup heavy cream (see butter)
 * 1/2 cup grated Parmesan cheese (grate this yourself or it won't work)
 * 1/4 cup grated Asiago cheese (see above)
 * 1/4 cup grated Percino cheese (see above)
 * 1/2 tsp salt
-* 1/4 tsp pepper (fresh cracked, tbh to taste)
-* parsley for garnish (so much)
+* 1/4 tsp pepper (fresh cracked, to taste)
+* parsley for garnish (to taste)
 * 16 oz cooked noodles
 
 Instructions
 
 For the Blackened Chicken
 
-Open all windows and turn all vents on high, this will smoke like a mofo. Melt butter and mix in blackened seasoning. Brush over chicken. Heat cast iron skillet over high heat for 5 minutes. Reduce heat to medium high and add chicken. Cook on each side until done. Remove from skillet and keep warm.
+Open all windows and turn all vents on high, this will smoke. Melt butter and brush over chicken. Put blackened seasoning on it. Heat cast iron skillet over high heat for 5 minutes. Reduce heat to medium high and add chicken. Cook on each side until done. Remove from skillet and keep warm.
 
 For the Alfredo Sauce & Pasta
 

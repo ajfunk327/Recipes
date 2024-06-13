@@ -2,7 +2,7 @@
 
 *From reddit & trial and error*
 
-Igrendients
+Ingredients 
 
 * Leftover white rice for this, around a day old. Maybe about 2-3 cups.
 * 2 chicken breasts, cubed

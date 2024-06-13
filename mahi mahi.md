@@ -5,8 +5,8 @@
 Ingredients
 - 2 (6 oz.) Mahi Mahi fillets
 - 2 tablespoons olive oil
-- Salt and pepper to taste
 - 1 tablespoon unsalted butter
+- Tony's Spicy, to taste
 - 1 small shallot, minced
 - 4-6 garlic cloves, minced
 - 1 cup chicken broth

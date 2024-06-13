@@ -1,6 +1,6 @@
 # Mahi Mahi in Lemon Garlic Cream Sauce
 
-*From Carl's Bad Cravings*
+*From Carl's Bad Cravings, modified*
 
 Ingredients
 - 2 (6 oz.) Mahi Mahi fillets
@@ -20,7 +20,7 @@ Ingredients
 - Angel hair pasta
 
 **Instructions**
-1. Season the Mahi Mahi fillets with salt and pepper.
+1. Season the Mahi Mahi fillets with Tony's spicy seasoning 
 2. Heat olive oil in a large skillet over medium-high heat.
 3. Add Mahi Mahi fillets and cook until golden and cooked through, about 3-4 minutes per side. Remove to a plate.
 4. In the same skillet, melt butter over medium heat. Start the pasta in heavily salted boiling water.
@@ -31,4 +31,3 @@ Ingredients
 9. Return Mahi Mahi to the skillet and spoon sauce over fillets.
 10. Garnish with parsley and parmesan and serve.
 
-For more details, you can view the full recipe [here](https://carlsbadcravings.com/mahi-mahi-recipe/#wprm-recipe-container-33632).
